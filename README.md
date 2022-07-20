@@ -1,0 +1,1 @@
+# sora-eu-estou-enviando-este-projeto-com-duvidas-pois-em-nenhum-desses-questionarios-eu-entendi-
